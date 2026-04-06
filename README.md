@@ -1,2 +1,2 @@
 #
-TD04HL-18,19T
+Mitsubishi
